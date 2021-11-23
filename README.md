@@ -1,2 +1,4 @@
 # HolyChurchofGuoba
-We, the followers of Guoba, do not deserve any human rights whatsoever.
+We, the followers of Guoba, are very great, wholesome people.
+
+https://thanhnguyen428.github.io/HolyChurchofGuoba
